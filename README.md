@@ -1,0 +1,1 @@
+Stressed during finals week, I wanted to take 15 minutes for myself and explain to my friends why drafting rookie skill players in fantasy football was the optimal strategy in leagues where the playoffs carry overwhellming weight.
